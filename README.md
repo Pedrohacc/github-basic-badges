@@ -1,1 +1,1 @@
-Applying to earn basic badges on GitHub.
+Applying to earn basic badges on GitHub!
